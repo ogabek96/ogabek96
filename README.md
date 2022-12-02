@@ -1,4 +1,4 @@
-![](https://media0.giphy.com/media/3otPorWLQJq5GmHRtu/giphy.gif)
+![](https://thumbs.gfycat.com/AstonishingDentalGermanspitz-mobile.mp4)
 
 <a href=#><img src="contributions.svg"></a>
 
