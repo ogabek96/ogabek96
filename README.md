@@ -1,4 +1,4 @@
-![](https://i.imgur.com/50NA7vr.gif)
+![](https://media.giphy.com/media/vzO0Vc8b2VBLi/giphy.gif)
 
 <a href=#><img src="contributions.svg"></a>
 
