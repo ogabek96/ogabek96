@@ -1,4 +1,4 @@
-![](https://thumbs.gfycat.com/AstonishingDentalGermanspitz-mobile.mp4)
+![](https://i.imgur.com/50NA7vr.gif)
 
 <a href=#><img src="contributions.svg"></a>
 
